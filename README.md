@@ -5,4 +5,4 @@ De la part de; Ayah Kanaan, 7831689
 Bwen Kayembe Entus, 30030868
 Akram Boufennara, 300289086,
 Biran Wann et
-Tarek Rehouli, 300303046.
+Tarek Rehouli, 300303046
